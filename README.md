@@ -21,5 +21,5 @@ Buscando minha primeira oportunidade profissional em TI
 Consolidar meu conhecimento como desenvolvedor e primeira oportunidade no mercado de trabalho.
 
 ## 📫 Contato
-- ✉️ Email: artur0208alves@gmail.com
+- ✉️ Email: arthurcalves02@gmail.com
 - 📷 Instagram: (https://instagram.com/a.cruz08_)
